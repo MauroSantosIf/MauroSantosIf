@@ -3,7 +3,7 @@
 Sou um entusiasta da tecnologia e acredito que, quando usada da maneira correta, ela pode mudar o mundo para melhor! 💡
 
 👨‍🎓 Sobre Mim<br>
-🎂 Tenho 20 anos<br>
+🎂 Tenho 21 anos<br>
 🎓 Estudante de Sistemas de Informação<br>
 🌎 Apaixonado pelo impacto da tecnologia na sociedade<br>
 
